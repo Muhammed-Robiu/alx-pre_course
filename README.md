@@ -1,1 +1,2 @@
-Alausa left me hanging to eat
+Alausa is lazy
+alausa should stop been lazy
